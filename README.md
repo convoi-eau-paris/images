@@ -1,3 +1,4 @@
+![Image description](convoi_paris_benevoles_link.jpeg)
 
 ![Image description](convoi_paris_benevoles.jpeg)
 
